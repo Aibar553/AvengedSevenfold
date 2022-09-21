@@ -1,4 +1,6 @@
 **Lyrics**
+
++ Master
 He who makes a beast out of himself
 Gets rid of the pain of being a man
 Caught here in a fiery blaze, won't lose my will to stay
